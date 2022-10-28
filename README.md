@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @smiggle001
-- 👀 I’m interested in ridding horse
+- 👀 I’m interested in creating new things
 - 🌱 I’m currently learning mobile app developememt
 - 💞️ I’m looking to collaborate on a project
 - 📫 How to reach me aliyuwalid100@gmail.com
